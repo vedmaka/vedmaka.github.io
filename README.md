@@ -1,2 +1,0 @@
-vedmaka.github.io
-=================
